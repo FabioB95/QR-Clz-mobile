@@ -1,1 +1,0 @@
-# QR-Clz-mobile
